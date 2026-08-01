@@ -1,2 +1,3 @@
 - https://www.dentonvacuum.com/resources/what-is-thin-film-deposition/
+- https://highpurityaluminum.com/blogs/news/the-essential-guide-to-thin-film-deposition-and-vacuum-coating-for-metals
 - 
